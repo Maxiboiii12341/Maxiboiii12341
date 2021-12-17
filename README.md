@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Maxiboiii12341
+- 👀 I’m a Adminstartor/Moderator
+- 🌱 I’m currently learning Lua, 
+- 📫 How to reach me #open-a-ticket
+- 🙋‍♂️ Need help? Join .................
